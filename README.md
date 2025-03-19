@@ -7,12 +7,12 @@ Looking for the best online casino Canada has to offer? You’re in the right pl
 
 | Rank | Casino | Rating | Welcome Bonus |
 |------|--------|--------|---------------|
-| #1 | **JACKPOTCITY** | 4.9/5 :star: | up to $1,600 |
-| #2 | **SPIN CASINO** | 4.8/5 :star: | up to $1,000 |
-| #3 | **NORTH CASINO** | 4.7/5 :star: | up to $5,000 |
-| #4 | **NATIONAL CASINO** | 4.7/5 :star: | 100% up to $500+ 100 Free spins |
-| #5 | **22bet** | 4.6/5 :star:| 100% up to $450 |
-| #6 | **20bet** | 4.5/5 :star:| 100% up to $180+ 120 Free spins |
+| #1 | [**JACKPOTCITY**](bit.ly/jackpotcity-canada) | 4.9/5 :star: | up to $1,600 |
+| #2 | [**SPIN CASINO**](bit.ly/spincasino-canada) | 4.8/5 :star: | up to $1,000 |
+| #3 | [**NORTH CASINO**](bit.ly/northcasino-canada) | 4.7/5 :star: | up to $5,000 |
+| #4 | [**NATIONAL CASINO**](bit.ly/nationalcasino-canada) | 4.7/5 :star: | 100% up to $500+ 100 Free spins |
+| #5 | [**22bet**](bit.ly/22bet-canada) | 4.6/5 :star:| 100% up to $450 |
+| #6 | [**20bet**](bit.ly/20bet-canada) | 4.5/5 :star:| 100% up to $180+ 120 Free spins |
 
 ## Top 6 Gambling Sites in Canada We Recommend
 
